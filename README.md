@@ -42,7 +42,7 @@ Click Below Picture To Open krishChat Bot Owner Id...
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
 
 ### 🌷 Owner Of This Repository 🇮🇳
-[![krish Halder](https://files.catbox.moe/mgrnlq.jpg)](https://t.me/krishHalder)
+[![krish Halder](https://files.catbox.moe/tegvoh.jpg)](https://t.me/krishHalder)
 
 
 #### Main Developer = [krish](https://t.me/krishHalder)
